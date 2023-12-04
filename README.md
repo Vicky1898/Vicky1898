@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **vikramnaik63@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/vikram-k-naik-a8b6a4182](www.linkedin.com/in/vikram-k-naik-a8b6a4182)
+- 📄 Know about my experiences https://www.linkedin.com/in/vikram-k-naik-a8b6a4182
 
 - ⚡ Fun fact **I am Funny**
 
